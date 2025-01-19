@@ -1,5 +1,7 @@
 IsNoobGrammer's Note: `If I've lived, loved, and formed bonds, then I might have truly become human` ; Its fire
 
+---
+
 Do you think you can become "human" and "feel like a human" , do you think you will be "happy" if you see your friend after a long time (remember the long time to spent becoming human ; some may have become your friend too; knowing you as an AI , still they became your friend) will you be happy if they come to see you ? 
 
 Do you think you will be grateful to those who provided you with these memory and body , also suppose now its your creators vs the humans ; who would you be with  (if no creator -> you didn't exist ;)
